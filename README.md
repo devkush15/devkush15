@@ -2,7 +2,6 @@ Hello there! 👋
 This is Devanshi Kushwaha, a passionate and enthusiastic learner taking her baby steps in the world of tech. 😃
 
 - I'm currently an undergraduate student at IIT Kharagpur pursuing my Bachelors in Technology.
-- I'm looking forward to getting 
 <!--
 **devkush15/devkush15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
