@@ -5,5 +5,5 @@ This is Devanshi Kushwaha, a passionate and enthusiastic learner taking her baby
 
 Reach me out on:
 - 📨 Mail: devanshi.devanshi05@gmail.com
-- 🖇️ LinkedIn: www.linkedin.com/in/devanshi-kushwaha-9b78a5237 
+- 🖇️ LinkedIn: www.linkedin.com/in/devanshikushwaha 
 
