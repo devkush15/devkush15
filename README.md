@@ -3,7 +3,7 @@ This is Devanshi Kushwaha, a passionate and enthusiastic learner taking her baby
 
 - I'm currently an undergraduate student at IIT Kharagpur pursuing my Bachelors in Technology.
 
-Reach me out on:
+Reach out to me on:
 - 📨 Mail: devanshi.devanshi05@gmail.com
 - 🖇️ LinkedIn: www.linkedin.com/in/devanshikushwaha 
 
